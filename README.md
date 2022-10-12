@@ -1,1 +1,1 @@
-# technogram jingala ok
+# technogram jingala 
